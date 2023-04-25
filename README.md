@@ -1,2 +1,2 @@
 # shiny-train
-Your personalized mobile cleaner
+Your personalized mobile cleaner My name is Brittany I'm your personal mobile cleaner looking to get your event place cleaned or maybe been a little to busy to deep clean your own place. Well I'm so glad to announce your new personalized mobile  cleaner we specialize in deep cleaning move in & out cleaning need your office cleaned? we got it need your church or maybe even your yard cleaned we got it. When I say personalized I mean personalized   
